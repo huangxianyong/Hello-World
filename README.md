@@ -2,7 +2,7 @@
 my first project
 
 
-this is the first time that Huang.xy join the GitHub,it seem like so cool,isn't it?
+this is the first time that Huang.xy join the GitHub,it seems like so cool,isn't it?
 Er..sorry,my English is not very good,but i am working on it.
 i like English more than Japanese,i thought the interesting is more important than everything.
 even through i was lost in something,i will never give up and try to make it better than before.
